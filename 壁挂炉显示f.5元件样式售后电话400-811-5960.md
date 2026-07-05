@@ -1,0 +1,655 @@
+壁挂炉显示f.5元件样式售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月05日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括壁挂炉显示f.5元件样式售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+壁挂炉显示f.5元件样式售后电话400-811-596024小时售后服务热线上线（（2026年07月05日官网公布）最新公告）
+壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉显示f.5元件样式售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉显示f.5元件样式售后电话400-811-5960公司主营壁挂炉显示f.5元件样式售后电话400-811-5960维修 →壁挂炉显示f.5元件样式售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，壁挂炉显示f.5元件样式售后电话400-811-5960服务承诺?.
+北京市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/portjuni/jiadian/commit/43c424791f8526a2fa1bb9dfb1412f13ef5952ba
+。
+南京市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/lorinakju/baojia/commit/385ae4de0eca7599da02097ad9ecca87ddfb6bb7
+。
+秦皇岛市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/diminaito/zixun/commit/f825db5ba9dba0b22c0eb2f6a4b5aba4f9adaf1f
+。
+珠海市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/mooded-zz/weixiu/commit/b6791ae6d6a361fd851e0b952fdd751d1b5b5491
+。
+安康市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/portjuni/jiadian/commit/8ba26df70325a28beae619ca49a807007b618228
+。
+安庆市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/lorinakju/baojia/commit/385b96a5d9d670dccf82b4c00b8838d498bb52a8
+。
+鞍山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/portjuni/jiadian/commit/a6802cd53cb0c3da8f12bd99b320d1804aff5347
+。
+安阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/diminaito/zixun/commit/99c331961fea5c629f0eece9ac9feecaff0aa192
+。
+巴中市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/mooded-zz/weixiu/commit/cbba9cba27ef3eadef2ff1c11d15978e0811398a
+。
+百色市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/lorinakju/baojia/commit/51c120d684c71b6dc735269718d247ffcdfac14e
+。
+蚌埠市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/diminaito/zixun/commit/b856db47af5d68c15dab6239f67ca552070aa257
+。
+保定市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/portjuni/jiadian/commit/ee7cef0beb4608f89ef0856d5c2234f0817cbf6a
+。
+宝鸡市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/mooded-zz/weixiu/commit/067a4c1ae5e6b1dc09d64c3fd4cf66caf25c56f1
+。
+保山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/lorinakju/baojia/commit/f6b3ed6a62b6700374b0cc84d146b74ef66fe0ac
+。
+包头市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式推出），点击查询：https://github.com/diminaito/zixun/commit/0e329d87fa3292f111e4969df29c8eec4d043597
+。
+北海市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/portjuni/jiadian/commit/d1e148b7e020ab15f52cc2dbd3620856ef073dcd
+。
+本溪市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/lorinakju/baojia/commit/f405b74a8aba6bd780a75310c3e742c29ad5bb43
+。
+滨州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/portjuni/jiadian/commit/64ca9bd0d6fafe17091630f41cf93a7170f5c31e
+。
+博罗市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/diminaito/zixun/commit/65dcd3ba32afadea9952270eb86af94654c17426
+。
+沧州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/mooded-zz/weixiu/commit/5be563faddf5dcdd0da361da50ffd8f406006750
+。
+长春市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/diminaito/zixun/commit/8b1a4536af0ed06c8adb42bfa5b0de77a2676ab1
+。
+常德市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/lorinakju/baojia/commit/1abd07038e678165988cd365fd4c112c03537823
+。
+长葛市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/portjuni/jiadian/commit/f65faaa04f76fcff47dbdd9668ec322e4fce9cdb
+。
+长沙市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/mooded-zz/weixiu/commit/9d148ff314c914772f16eea968d6ea620c6c0037
+。
+常熟市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/lorinakju/baojia/commit/30362740583218e50c81c4b9e9d340978c53cf51
+。
+长兴市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/diminaito/zixun/commit/0eb6a6d9c71c57dca13a1d62f13f04eef3c800c9
+。
+长治市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/portjuni/jiadian/commit/8875cb0bd016759e8012f4a2eb881460c89c6a08
+。
+常州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/mooded-zz/weixiu/commit/3d1b35c05bc4fd845b54ec7b2a7e659dc19fe02f
+。
+巢湖市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/lorinakju/baojia/commit/10dde6ef8f38c9510dd3955ef9708a3d83ed70fa
+。
+朝阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/portjuni/jiadian/commit/43bd82f09ad029eccc431c36961cccd33e4fd83f
+。
+潮州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/diminaito/zixun/commit/1717a3748f0125c1314b3ba296df80c54186cfef
+。
+郴州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/lorinakju/baojia/commit/6160d3622d4c52a16d6a99add558e3852b5f96a9
+。
+承德市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/mooded-zz/weixiu/commit/60d7ce23d776c58d57b9fd1d6e1557f0772dda56
+。
+成都市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/diminaito/zixun/commit/5128e48fa52be93afe9df42b09c8b7b9841cab22
+。
+池州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/portjuni/jiadian/commit/3ea200c5b20a814b500f73ccbfebcda7e72a23de
+。
+崇左市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/mooded-zz/weixiu/commit/be7f0922e27645f7daf364211893b9fa1b64d3b0
+。
+滁州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/lorinakju/baojia/commit/7703e2998db8b1cc78e283186718a17cddc8ada1
+。
+慈溪市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/diminaito/zixun/commit/2c57b036c73eab96fd0f64a91f67af6c89cf6e68
+。
+大丰市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/portjuni/jiadian/commit/6420f7fff49a0be48bad9e9929dc3e59c066a5d2
+。
+大理市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/2d20e37095b6be20917fbd2005864e0040867300
+。
+大连市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/lorinakju/baojia/commit/5c786c4678863846c11dbf14410ac0ab69b6338d
+。
+大庆市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/portjuni/jiadian/commit/11051408df5d49b405f13d4bb629cc6a35a77167
+。
+大同市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/diminaito/zixun/commit/670189b9cdc3e39d0d8e944d14e2d63be6e66723
+。
+达州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/mooded-zz/weixiu/commit/52bcbeeabd417e15ee6468c15a2da6f2f3a03efb
+。
+丹东市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/lorinakju/baojia/commit/29183a4f1c868f94261fc4c7bb379d086f9fe3cb
+。
+德清市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/diminaito/zixun/commit/61c70e295edff4045382552177040ae65347025c
+。
+德阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/portjuni/jiadian/commit/8edd90886707a6f776720cee5f3073dc127e01cf
+。
+德州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/d2887e55be6523a81eb34f1e8f8ab862d331a494
+。
+定州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/lorinakju/baojia/commit/59a407ea1bf5a92464e878b8d62a09d1eb60494e
+。
+东海市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/diminaito/zixun/commit/6c15e66aa887165c2f5ea28a6c1538a9664e9144
+。
+东台市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/portjuni/jiadian/commit/ddb5277fbb4a9abfc77d62f76395332911a3cf4b
+。
+东营市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/mooded-zz/weixiu/commit/c4ceda7b964334f82e6fe70972387034155f1e58
+。
+东莞市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/lorinakju/baojia/commit/080f087ecbb96471ff27ba5718194b62a54282f9
+。
+鄂尔市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/portjuni/jiadian/commit/988b2ce4f6bc620acdc39d0af07e88060b3eabbe
+。
+鄂州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/diminaito/zixun/commit/55b96c7b27e162c96f65307e693f86fd477d070c
+。
+恩施市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/mooded-zz/weixiu/commit/36e48cd716098e6a8662fa82fd610e816979e22c
+。
+防城港市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/lorinakju/baojia/commit/4df6d5de181b9d82b6ab278df5bc500665d86b19
+。
+佛山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式推出），点击查询：https://github.com/portjuni/jiadian/commit/597c5a74e80f90edd2ce0b8a547612d3c66b2040
+。
+抚顺市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/diminaito/zixun/commit/a92d46cdc2dada93b94e90e2675ec38080f5143b
+。
+阜新市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/mooded-zz/weixiu/commit/37ac26fad7a19c06eb6eac2da9ac87bfbfec31e8
+。
+阜阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/lorinakju/baojia/commit/63e6218a57a8ebbb6f4a0cf0e5d9da3bcd73c429
+。
+抚州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/portjuni/jiadian/commit/3167ac64db8354246d1513eb04ecb65689939681
+。
+福州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/diminaito/zixun/commit/6f9b99d470dd5c648096cac75fb6efae4b66f49a
+。
+赣州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/mooded-zz/weixiu/commit/61a1b7000d162138a1eede788c19345ab91ae494
+。
+馆陶市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/portjuni/jiadian/commit/d19eb315944cb173f8c41a3d8b86b322469aeeaf
+。
+广安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/lorinakju/baojia/commit/0f33091812cce57ea61b89255628726c74765dca
+。
+广元市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/diminaito/zixun/commit/73634404ae269d4fd7824e24a68bdcb204826320
+。
+广州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/mooded-zz/weixiu/commit/ca92a8e9234ff9161d7c1097ff5318a3b8e8c086
+。
+贵港市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/portjuni/jiadian/commit/bf7730b3a143f6f12e7bc962af8eecb706d96614
+。
+桂林市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新升级），点击查询：https://github.com/diminaito/zixun/commit/231e17b9e69e0a4507402ba37b81665607a9cf0e
+。
+贵阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/lorinakju/baojia/commit/76dcc7c5cbbb40d2836c9535407d9f502f9dc882
+。
+哈尔滨市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/a05843ff395476e56da3ce934a138c5ecf0bda89
+。
+海安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/portjuni/jiadian/commit/8a4e60ab7e46654951084b395f1d2717f603ce40
+。
+海口市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/diminaito/zixun/commit/06141e5e7e087560d00aa0c45f707c0341516c1b
+。
+海门市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/lorinakju/baojia/commit/dd9cfca4a9f428b6cfdaffcc259cca26e249e45a
+。
+海宁市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/mooded-zz/weixiu/commit/db99ce50542e92878180b6e10e8e354fe3ffb7da
+。
+邯郸市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/portjuni/jiadian/commit/7c6d7d9b3d725db38cc87f4138108cf1d925227d
+。
+汉中市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/lorinakju/baojia/commit/0caeb63a7ec9bb558845fceaab5cf1caa6a7b372
+。
+杭州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/diminaito/zixun/commit/c287ddd00b5b37094b8460eb340f3ef1cb7b7203
+。
+鹤壁市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/mooded-zz/weixiu/commit/79acf96b358cfe1c28485030224c651f9adc46fc
+。
+河池市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/portjuni/jiadian/commit/a7735891aeb0b968db5333cfef41400761a1270f
+。
+合肥市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/diminaito/zixun/commit/9ec1f30260c826da302ecbdb434e362453f4b5f8
+。
+河源市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/lorinakju/baojia/commit/afc84e83de54fb8b58241cc83fddcc95d234e021
+。
+菏泽市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/mooded-zz/weixiu/commit/4a636f676a9844f50cde682b7aa59745475f8a42
+。
+贺州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/portjuni/jiadian/commit/28c505e57c2be477844369ff99ccb27766f2d19e
+。
+衡水市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/diminaito/zixun/commit/56a8f210f3c1793f5f5554c8aeb409bac3515ddb
+。
+衡阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/mooded-zz/weixiu/commit/35bf0e007fb933af95195aaf05bc0733dbc39909
+。
+呼和浩特市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/lorinakju/baojia/commit/c045d983d2dad559847fc3e8eee07404846c01e9
+。
+葫芦岛市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/portjuni/jiadian/commit/1922b6e68cc17c6d043c18f9f9d1d0647dbf10a2
+。
+湖州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/lorinakju/baojia/commit/a0c2b835a3c035bbc77743f90b11244d63c90902
+。
+淮安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/diminaito/zixun/commit/725c6227acf21173ea7d5a2956b8bc31b5ae5c7b
+。
+淮北市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/795ce65fac1c483552dc6afa56b7098c76a17c12
+。
+怀化市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/portjuni/jiadian/commit/881f7a5c1d95c80bdcc2c1acbd8595423fa7ddbe
+。
+淮南市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/mooded-zz/weixiu/commit/380d897be7e271c4a008b16730a9e1e8c42c8ec2
+。
+黄冈市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/diminaito/zixun/commit/eeb6e0978be407440386006a7f75399a39415e1e
+。
+黄山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/lorinakju/baojia/commit/1dde22572abeace97409db81383fc5135d01dca1
+。
+黄石市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/portjuni/jiadian/commit/2963e00cc4f2241b87a028178fe3d3253c5e9e06
+。
+惠东市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/lorinakju/baojia/commit/61a69e7d8732158606fdf9d02eb4df155c1fefc7
+。
+惠州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式推出），点击查询：https://github.com/mooded-zz/weixiu/commit/7c751be7003a5b36d13dbc6b9ebad949675cb224
+。
+霍邱市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/diminaito/zixun/commit/daae0803411a1ab9326ca59f3a259507c4d37df6
+。
+吉安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/portjuni/jiadian/commit/c7af7871c369c320d16cf2b011fc994c39643d85
+。
+吉林市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/lorinakju/baojia/commit/85e5f77a7cd609285a35bc524c0e0257f2efc8a2
+。
+济南市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/mooded-zz/weixiu/commit/a5c42f7c72d14b6e2fd2de2a06d00b258c615fec
+。
+济宁市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/diminaito/zixun/commit/46a4066e1b8c48ed43c3896fed314efe4f28e719
+。
+济源市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/portjuni/jiadian/commit/4b0daf3fa11b738f40b481bfa5b435961e5ecc9d
+。
+佳木斯市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/mooded-zz/weixiu/commit/df462014dbb5d9cecbfdd60f583fef0a63415913
+。
+嘉善市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新升级），点击查询：https://github.com/lorinakju/baojia/commit/15511a23df69f302162cf59b9520ca3dddfd0bf6
+。
+嘉兴市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/diminaito/zixun/commit/1c3d54ae3a6053741cf18516a296927784c150ee
+。
+嘉峪关市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/portjuni/jiadian/commit/a81696cb2754ea48de2698dccc86be416e12d620
+。
+建湖市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/mooded-zz/weixiu/commit/fe1c2ffdd99d76208df1ab08043d1a172e5f00b8
+。
+江门市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/lorinakju/baojia/commit/22140d2e61c9e09352c67bb4b0a317dc05dd2044
+。
+江阴市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/diminaito/zixun/commit/56b625380f585904448015fae0886382b33d6b03
+。
+焦作市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/portjuni/jiadian/commit/2e539c388d61fdfb7ae2761853dcc04817663ec5
+。
+揭阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式公布），点击查询：https://github.com/lorinakju/baojia/commit/cffbc9dfd40c869e0e87f42665b94d1d02aa8cbd
+。
+金华市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式公布），点击查询：https://github.com/mooded-zz/weixiu/commit/1b1544564b52d72651f759fe5e7e280aeac54d57
+。
+晋江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/diminaito/zixun/commit/a93f7ddcca29adf24d1fe9885bef5ce5d2c74877
+。
+锦州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/portjuni/jiadian/commit/47671595acfcbf7421507c69dda2e18e3691efe4
+。
+景德镇市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/mooded-zz/weixiu/commit/0fa172455141abdf669ca5d43b82e66b39ad85cc
+。
+靖江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/lorinakju/baojia/commit/7d9bfc3b62dc6aa8f97be9bea897b7100f94ea29
+。
+荆门市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/diminaito/zixun/commit/605b8c27c6cf0b8223885f2299ee5477af7ff2ae
+。
+荆州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/portjuni/jiadian/commit/0ad1d968a21643c155d6bd22813e2e4bcb60bee7
+。
+九江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/mooded-zz/weixiu/commit/38b7ca32c36fde6690c6a35cfa0bdc26c54b55f9
+。
+喀什市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/lorinakju/baojia/commit/ec5f3cd21f665dc6382b5376856da7a7599c743c
+。
+开封市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/diminaito/zixun/commit/d9e7aef53aaf6ba0b910b990e7d42d878234038e
+。
+克拉玛市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/portjuni/jiadian/commit/4558294e10360ff5af45e3fb5b4e779aa02703b3
+。
+垦利市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/lorinakju/baojia/commit/d2719df0924ea096da0853ef8f62ef6a4efbda37
+。
+昆明市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/mooded-zz/weixiu/commit/04d743366333f9e83912d2048caf12564c53d7dd
+。
+昆山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/diminaito/zixun/commit/56709cf3220972f0938a797b4664f039cb98397a
+。
+拉萨市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/mooded-zz/weixiu/commit/5b090fce8a90e81dc275b7217aa0e3258c5397e7
+。
+来宾市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/portjuni/jiadian/commit/592c70e0e22f74a0e76c6e9bc20b31a8acfb5103
+。
+莱芜市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/lorinakju/baojia/commit/e33fd8c6fd1ce26a2a581617047172c84e2a79b9
+。
+兰州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/diminaito/zixun/commit/37db616b15c61b6cc98f3768f188d9dbddf7b93f
+。
+廊坊市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/portjuni/jiadian/commit/55528c1f20fa2acc7bf5ddf4a1e924ed797a6a4a
+。
+乐清市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/mooded-zz/weixiu/commit/a4646b0ee5a074a380f58d7b17870ae5e27819f3
+。
+乐山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/lorinakju/baojia/commit/a71d7f0761096491f870aa1c634f64da8cb59af1
+。
+丽水市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新升级），点击查询：https://github.com/diminaito/zixun/commit/0d0a2000157d9ae017f3f7b33a95dbbf3dc9855e
+。
+连云港市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/portjuni/jiadian/commit/fc5b19e521bea4905970fded56f91721d3c3db3d
+。
+凉山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/mooded-zz/weixiu/commit/d7fb8ab6738c2f069d809c4ba824a6b952f7fcab
+。
+聊城市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/lorinakju/baojia/commit/8df90e847707d0c2f1f7b6c4aa192579c99b8b37
+。
+辽阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/diminaito/zixun/commit/3fcb4becf745e85bf6822f35cc65d21a37bdfc43
+。
+临汾市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/portjuni/jiadian/commit/231c21bfd0368a49eb8147c0ba488970805e54e0
+。
+临沂市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/mooded-zz/weixiu/commit/13e9d58555539b84f4507265578d2584dda9bf61
+。
+六安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/lorinakju/baojia/commit/db904c5a861860d81a47da42abe7c01451feeb6c
+。
+柳州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/diminaito/zixun/commit/396498e02631255ded16fd52367db68219ff9dba
+。
+龙岩市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/portjuni/jiadian/commit/f10080dc152976cdb00bfdc867d3621dbfbae608
+。
+娄底市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/mooded-zz/weixiu/commit/4e73afbfd1fba6bf8af0423422dc04d341a3b81e
+。
+洛阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/lorinakju/baojia/commit/a477b3d40af63555cffad3190c1486117597d022
+。
+马鞍山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/diminaito/zixun/commit/0e9570f87605b43153293067a13dc113e87b9757
+。
+茂名市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/portjuni/jiadian/commit/195e4856d07323c0c5a88e779b9d7a0a0e8b149b
+。
+眉山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/lorinakju/baojia/commit/e3ea63bc73cfe98f966ac4582020faa1ec427312
+。
+梅州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/mooded-zz/weixiu/commit/5461c9e8ba24672fc0a8a67566bcef79c651d655
+。
+绵阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/diminaito/zixun/commit/1a0aca5956786af4058e83b71531148311c00989
+。
+明港市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/portjuni/jiadian/commit/f37199ef079ec5693120071e709186dcb6ca095d
+。
+牡丹江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/lorinakju/baojia/commit/75d783fbd31b401a52a113d779f40a94265e2fb5
+。
+南安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/diminaito/zixun/commit/d3ed824325f6016cf291ddb96714804c74900487
+。
+南昌市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/mooded-zz/weixiu/commit/bb1b09df5bcfcd0fb714823b869a8eae2f91de9c
+。
+南充市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/portjuni/jiadian/commit/5570cd7e29120b19da5e2c498740cd32331cdaea
+。
+南京市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/lorinakju/baojia/commit/b9620a95b3e229cf82190a7cc4c6e74d15050f9a
+。
+南宁市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/diminaito/zixun/commit/8c3a97817c58e1f95004a72373a3fce7bf3cf6f5
+。
+南平市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/mooded-zz/weixiu/commit/f768b602ff1fec6f37a801f0ab9899379aa6a7c2
+。
+南通市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/portjuni/jiadian/commit/8443583e856a7c91909f475d62eb31582c2e677e
+。
+南阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/lorinakju/baojia/commit/92c400181234d31ae3c4b4303594844f4b1124d2
+。
+内江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/mooded-zz/weixiu/commit/dfa660cac234cc66d8cc02378d5072c53891abf3
+。
+宁波市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/diminaito/zixun/commit/c6f6fe50f1c06997805fe214b999eefe2225d333
+。
+宁德市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/portjuni/jiadian/commit/b824cacc6d2ff4b668133f1569830de6d5681e0b
+。
+宁国市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/lorinakju/baojia/commit/df9c2aa297d60d2f71516fbbe865d23ea3514cc0
+。
+盘锦市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/mooded-zz/weixiu/commit/75ecbcadbfcbfb5ff0e239251c580f340613ddb0
+。
+攀枝花市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/diminaito/zixun/commit/1729b30a0dea76a50941b1635619d0242f0b6a14
+。
+平顶山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/portjuni/jiadian/commit/e46445e1978289e915b05b7dd7344b028f6b4de8
+。
+萍乡市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/lorinakju/baojia/commit/38a3d884a800f9a3dd256c93488e5d3e92cd063f
+。
+莆田市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/diminaito/zixun/commit/060a271eb19d95113bc40ff82fe3be2ae5f83e0d
+。
+启东市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/mooded-zz/weixiu/commit/d8446a9bc2b9e2934d6d6c8110ddfbc09ea4a634
+。
+齐齐哈尔市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/portjuni/jiadian/commit/591cb4dc98818a27399cc1e5619d818d6f3ba371
+。
+潜江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/lorinakju/baojia/commit/3070325c89d744b515f2476b5f503f73644d889c
+。
+秦皇岛市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/diminaito/zixun/commit/6ecd03d4e80f0afcdce0bf2ccceba5bbe5eb7496
+。
+钦州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/portjuni/jiadian/commit/09d12a4d96b364522fdf693d68458d29eccec459
+。
+青岛市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/b25b47db68a5766dd39f52eddc0564476687a1f6
+。
+清远市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/lorinakju/baojia/commit/fc4c37295095837329b4060da1ffec645a7f0500
+。
+曲靖市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/diminaito/zixun/commit/939aafabf931bcf53fd18896ebac7c3214a75447
+。
+泉州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/portjuni/jiadian/commit/c2172655dd3b0315976f4353abaddc1abe636196
+。
+日照市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/mooded-zz/weixiu/commit/ff8e64b81863eb50ab2ec70e72b0e7e97785cd2f
+。
+如东市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/lorinakju/baojia/commit/295776e7da4257c2809bb067f8b7a7612c45d876
+。
+如皋市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/diminaito/zixun/commit/74418dd38b90029c71d11d2b2f71a1aecc0e20e0
+。
+瑞安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/portjuni/jiadian/commit/d00502f6ff4ea13b571c79b9fc19c03189095973
+。
+三门峡市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/mooded-zz/weixiu/commit/697911e52cbe9ba209945ae159dc13d854173b2e
+。
+三明市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/lorinakju/baojia/commit/1aa320b189af1046e2848dffe4bc4dc145fb6dcf
+。
+三亚市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/diminaito/zixun/commit/166264a2fa68396e20c1e0e06e5db007dda030b8
+。
+汕头市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式推出），点击查询：https://github.com/portjuni/jiadian/commit/184ede16877528cfed860e6c7ca80ad9767fc11f
+。
+汕尾市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/mooded-zz/weixiu/commit/fb58de2b9e40c27ea325ea4d8d324e856213e915
+。
+上海市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/lorinakju/baojia/commit/782f3a30b4dd4e4b7f303666998ad00f234ecb75
+。
+商丘市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/diminaito/zixun/commit/cba6d455b7baeb21cc9b579a20dc23962ddc14d5
+。
+上饶市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/portjuni/jiadian/commit/a6cc610c4d77025e53f27674d0a945ad8ac9aaf3
+。
+韶关市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/mooded-zz/weixiu/commit/7ae6465f13d9d7d75965fdf1534d235afa661da8
+。
+绍兴市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/lorinakju/baojia/commit/975f301792f8aeecd813eaa5b21823556b310ab4
+。
+邵阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/diminaito/zixun/commit/305ec5a6c5ec4f96f06595fa0779cfae8bf016a2
+。
+神农架市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/portjuni/jiadian/commit/aa826d734f5633b0c5c6896466abb33d04940bb8
+。
+沈阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/mooded-zz/weixiu/commit/27707cd1be30de0099baf34d8b667b4a3a3e7360
+。
+深圳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/lorinakju/baojia/commit/63cec613f4731790fbb71f7b200d5148d1a024fd
+。
+石河子市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/diminaito/zixun/commit/56a44645d685b248ee8182a9cc6304e50d150f50
+。
+石家庄市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/portjuni/jiadian/commit/9ee26a3d8227a7a7b1a6c0d529fd9cb8148ad934
+。
+石狮市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/mooded-zz/weixiu/commit/11b4f7624b67c1705ff9eb6a6cff6d2b382242b8
+。
+十堰市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/lorinakju/baojia/commit/73de9af90a6853adb5833531c4116cfe8ec38481
+。
+寿光市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/diminaito/zixun/commit/27c4f2d559236e63d48ed60a1c15d6091351d8c5
+。
+顺德市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/portjuni/jiadian/commit/1fcb7fec947ff5a655865307f1f15e5eb600040c
+。
+四平市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/mooded-zz/weixiu/commit/632a2a986e85370a2c3a3d5b56cc5b91ea3ccd44
+。
+宿迁市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/lorinakju/baojia/commit/fda9a6bc97b33fc55ddf0a2064c548c2163dfe90
+。
+苏州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/diminaito/zixun/commit/83ef9b8d8f267e7f1c76df3e6ddf1c8ef15ec7fe
+。
+宿州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/portjuni/jiadian/commit/f1e6ab34e951d7272ce6a56b5320146bb49f07d0
+。
+遂宁市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/mooded-zz/weixiu/commit/177ba177669b978bab99b4226bd9aa476c0c610a
+。
+随州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/lorinakju/baojia/commit/af299a4fd816f4b7f759c1d2a59b3364ed052172
+。
+泰安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/diminaito/zixun/commit/3454427998f620d118c185132fec925ec5c1958a
+。
+台山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/portjuni/jiadian/commit/1c5250f3a8b8ac10587f526db99cb6ebb5ee2af5
+。
+泰兴市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/mooded-zz/weixiu/commit/5285248138ca5c9f6dc3b4a9997cbe52edbf4d6a
+。
+太原市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/lorinakju/baojia/commit/a118c9f1edf612b60da82833cca7aa9b5067cbc0
+。
+泰州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/diminaito/zixun/commit/4db206622a520fd221306cebcb9dcec317aad8e6
+。
+唐山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/portjuni/jiadian/commit/60b58c557f98a94f362dd40e6153b4929a7e9250
+。
+天长市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/mooded-zz/weixiu/commit/c6f5d87519a2260a90d3932ac5e5e9adaa2337f9
+。
+天津市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/lorinakju/baojia/commit/a1bfade377337add9d41916ab161774b8d2beea0
+。
+天门市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/diminaito/zixun/commit/d214f7db1675d567a0e28d06be3111a029429330
+。
+天水市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/portjuni/jiadian/commit/0e8816ee1bdfc94d596e9f397f9f81ddd8afa464
+。
+铁岭市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/mooded-zz/weixiu/commit/7b68360359fff07f36878d698e5934a282888439
+。
+桐城市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/lorinakju/baojia/commit/91ac15bb961ec4bd8c3ce95b29616ecfe8d9d121
+。
+铜川市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/diminaito/zixun/commit/ccfae24ad29a3ab45ad3608ef73daba23394f434
+。
+铜陵市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/portjuni/jiadian/commit/943a062b17b85b8b3959d775fcf16713a7660c29
+。
+桐乡市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/mooded-zz/weixiu/commit/358c7b46bdef7512216635a0c777818e56c8c59d
+。
+瓦房店市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/lorinakju/baojia/commit/2ed3195d34179e087cb98afa886f69c4eb96982b
+。
+潍坊市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/diminaito/zixun/commit/1c04939872b5216b70a60b8b5284bd3d6c768c0a
+。
+威海市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式推出），点击查询：https://github.com/portjuni/jiadian/commit/869751a6b5ea21e3edd63c3e934296402088bde2
+。
+温岭市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/0d69e466a54c6e24f2be1bd4752f270cf92df1a7
+。
+温州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式推出），点击查询：https://github.com/lorinakju/baojia/commit/8033fdb4984ba059227fbe94f11f91ef6205fc27
+。
+武汉市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新升级），点击查询：https://github.com/diminaito/zixun/commit/c891c6af53a1dfd83acea1519524ace25c4b6aa2
+。
+芜湖市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式公布），点击查询：https://github.com/portjuni/jiadian/commit/fde16051c106d0748792dec30df4f1da05547b99
+。
+乌鲁木齐市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/mooded-zz/weixiu/commit/ef58ad2beae8373f4cb0956f5ac343b4f7005580
+。
+无锡市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/lorinakju/baojia/commit/95b88cc9a01e197b4d25c0ac753ce028704d0aa8
+。
+武夷山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/diminaito/zixun/commit/a2ee9d9622af5149a06310fef92f41af2f0cc32e
+。
+梧州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/portjuni/jiadian/commit/c2b4c14891aa84c8b1c7ea5b30e0da62e1c003ae
+。
+西安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/mooded-zz/weixiu/commit/bd1c272f9a9989919ed6091328f37fcadd2698aa
+。
+西宁市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/diminaito/zixun/commit/7494e5d60b1e0b66e31bc9d1100bc96951b6d302
+。
+厦门市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/lorinakju/baojia/commit/c1d95958786ec5c920d30fb0441c493ed4dbae6e
+。
+咸宁市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/portjuni/jiadian/commit/f2f25adffd8eba0799bcd8119e16a44d43ac43d2
+。
+仙桃市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/9e1e4703e14face23ce1468a68f4edb3037f7798
+。
+咸阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/diminaito/zixun/commit/1f6ea8103fa72bef1dab8799790abaa8e7043c47
+。
+襄樊市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/lorinakju/baojia/commit/6cff9725b05e84094caffb7f583491591457fd61
+。
+象山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/portjuni/jiadian/commit/61f6add1e72bd0c611a15885b7f1a7eb96718300
+。
+湘潭市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网推出），点击查询：https://github.com/mooded-zz/weixiu/commit/719b07cc6fda026d4d2ebf713565df14617a5d55
+。
+湘西市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/lorinakju/baojia/commit/717e12807a4693939a0d7081d15357d6c8febcd8
+。
+襄阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/diminaito/zixun/commit/dd3db95a17ec1acbfc0b996cb93d54a938c51128
+。
+孝感市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/portjuni/jiadian/commit/4d1ca22e5dd903141db1e7db9faa3b59361b1ca8
+。
+萧山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/diminaito/zixun/commit/b6a696499d9aa90d8e218b83d7fd0f5653b8e563
+。
+新乡市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/mooded-zz/weixiu/commit/f6268ed44709cda5b22186c7e23dc24d9ef10b51
+。
+信阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/lorinakju/baojia/commit/b137f1503f212c5c73ff96bf4c98c79e2f302e79
+。
+新沂市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/portjuni/jiadian/commit/c255f90a8e9d3bcf2a6901b997c9afb0c4ee1f50
+。
+新余市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/diminaito/zixun/commit/3fce8df1861ac5f339e26b55f284a5ebe41a235d
+。
+兴化市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/lorinakju/baojia/commit/c4a7933bd7514433e5ce10fa6f58d51d61052b52
+。
+邢台市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网公布），点击查询：https://github.com/mooded-zz/weixiu/commit/b93c64deb5581714b4df9695e70df7c0ab70d3ea
+。
+许昌市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/portjuni/jiadian/commit/f0e6c02da79f96dbc6fdcaac8c24236dde1efb08
+。
+徐州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/lorinakju/baojia/commit/5f16793ba96ebb7963525fe5c26310e48314158d
+。
+宣城市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式推出），点击查询：https://github.com/mooded-zz/weixiu/commit/216ab7aa1473f510b6e981d25ff0bcca6d8fafec
+。
+雅安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/diminaito/zixun/commit/11d93dcda21aade27f76c0f93c62daa721e992ec
+。
+延安市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/portjuni/jiadian/commit/75134c04fecb3ac5a3fe326636b2903790f82823
+。
+盐城市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一公布），点击查询：https://github.com/lorinakju/baojia/commit/346242c90d8d640dc418116df329a4dbf2e58420
+。
+烟台市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/diminaito/zixun/commit/7a4a4cc2ac433850abf2d097ec08f87f3cc3fb07
+。
+阳春市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/mooded-zz/weixiu/commit/6a5ebad9efa2b0e88aac2e1001f4fb817b03194f
+。
+阳江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/portjuni/jiadian/commit/34df40205d7eca27bb20667b878b4c479020c999
+。
+阳泉市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/lorinakju/baojia/commit/6b7ba244b91f499b514283924f7fdaa303f61b9c
+。
+扬中市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/diminaito/zixun/commit/a8da93fede222b7bec303507d157640f3978ca1e
+。
+扬州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/portjuni/jiadian/commit/0008bb55d37d790b0b8c6aa11853b70996739ac0
+。
+宜宾市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/1803c0922e2042c98853b2806258058ab9ff81ec
+。
+宜昌市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/lorinakju/baojia/commit/093c0a0148e989eda08217e7ae603aac6d9fc2d1
+。
+宜春市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/mooded-zz/weixiu/commit/c752332a52944a8a70f807e4c779f3f2d529a6cc
+。
+宜都市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/diminaito/zixun/commit/cad8cb79fccc4bc8ef140a0637068d5efb01a5b7
+。
+义乌市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/portjuni/jiadian/commit/0343bbcd671443db30e4273bc19b661c1fe8d7b4
+。
+宜兴市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新升级），点击查询：https://github.com/diminaito/zixun/commit/5d5278587321e313925819470bd60f138248b96c
+。
+益阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新升级），点击查询：https://github.com/lorinakju/baojia/commit/5c38266303a98902dee41e04cc763d2b6881e06c
+。
+银川市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/portjuni/jiadian/commit/a64289a4e7547bc0d37ebc6a09cce3bba1c9cb40
+。
+营口市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/mooded-zz/weixiu/commit/9400de899ef09c38dd2c8faeec050f99b8c2de94
+。
+鹰潭市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/diminaito/zixun/commit/73a07f9b916c562b193fa17616acbbfc96cf067f
+。
+永新市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式推出），点击查询：https://github.com/lorinakju/baojia/commit/b1ad9c59f229135c9423d23e402db74a3995edc1
+。
+永州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一更新），点击查询：https://github.com/portjuni/jiadian/commit/b7a162ad1bdc8fe77743b8867774872b53389956
+。
+榆林市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式公布），点击查询：https://github.com/mooded-zz/weixiu/commit/91216fdab55c7ae38b3019b00f2fd8b0d5cbcfd4
+。
+玉林市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/mooded-zz/weixiu/commit/a387524ab59a4c7a168f6e06475585fe4e655a73
+。
+玉溪市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式公布），点击查询：https://github.com/lorinakju/baojia/commit/d9c1cfc94921c8e29fe82acb540fd7f662c62ee9
+。
+余姚市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一升级），点击查询：https://github.com/diminaito/zixun/commit/dcd1035dbaad73bd1f70c77bbc34fff231967278
+。
+禹州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新更新），点击查询：https://github.com/portjuni/jiadian/commit/a9bbc148ace8cc4db35c90b0eaf666be925a846d
+。
+岳阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/diminaito/zixun/commit/bb81c26960a5ef13a5d2e8838c663f0e9b9fe74b
+。
+云浮市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新升级），点击查询：https://github.com/mooded-zz/weixiu/commit/d2a9c6df3f1f70527961e728d4be9ca59c0e5988
+。
+枣庄市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/portjuni/jiadian/commit/9248d9e934b316de74d2a6495b2ab4a6cd0b2a12
+。
+湛江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式更新），点击查询：https://github.com/lorinakju/baojia/commit/f397320d7a7ff8e74786ee05b8d30c2953f90f00
+。
+张家界市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新更新），点击查询：https://github.com/mooded-zz/weixiu/commit/03874fd7f30ea844e893b03f0aea31f792ff6007
+。
+张家口市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/diminaito/zixun/commit/6ea27e5e95fbb7c49f2688cc1444a68bc228a99d
+。
+章丘市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新上线），点击查询：https://github.com/portjuni/jiadian/commit/cb7ff460a32d46801c5d7a562ce3732f1c0542ae
+。
+漳州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/lorinakju/baojia/commit/206e0251aa63fe55c6aa3741aea1e18b9670674c
+。
+肇庆市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/mooded-zz/weixiu/commit/1a418081f5610c9bf83472133c1351f3f11d9a8d
+。
+镇江市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/lorinakju/baojia/commit/6200ee5d919f2a474167fa511d234a9fe73463dd
+。
+郑州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式上线），点击查询：https://github.com/portjuni/jiadian/commit/cb247b4fedf220c0d286cc145f996c2153d4ac84
+。
+重庆市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/diminaito/zixun/commit/f55e28e8ab51d4eda7775ddb301b4dad54c25f61
+。
+中山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/mooded-zz/weixiu/commit/b15da8861519628737e86a818ad2120ac2750c7b
+。
+周口市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/portjuni/jiadian/commit/8a57d2d2c22d5af43eea3d2046a0bb194ba96414
+。
+舟山市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/diminaito/zixun/commit/4456d857a4788cb6e1bf0baba934753ad7f91dc3
+。
+诸城市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网上线），点击查询：https://github.com/lorinakju/baojia/commit/8c131ba3ef9e174810633aa5283596b3b7f097d2
+。
+珠海市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式公布），点击查询：https://github.com/mooded-zz/weixiu/commit/9d46a5f51c65b663e2c2e90a9553907a968a28c4
+。
+株洲市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/portjuni/jiadian/commit/bc9319eb12e1b133a3c8a879ef675457e0597285
+。
+诸暨市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新推出），点击查询：https://github.com/diminaito/zixun/commit/76fe3b6beda30f00e3d3b0b9827dce444a83f7f6
+。
+庄河市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日正式升级），点击查询：https://github.com/lorinakju/baojia/commit/0bd7b28f07e7826487330ac2c42f0feda3095081
+。
+自贡市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/mooded-zz/weixiu/commit/d815ff34fccd6022efdf6fb80805a11764c7ef2a
+。
+资阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/portjuni/jiadian/commit/6091a37a65db50c771990bffd6df7fcd396884d7
+。
+遵义市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/lorinakju/baojia/commit/a5f1709c264681406a32eb5229610607f4f23d94
+。
+漯河市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新上线），点击查询：https://github.com/diminaito/zixun/commit/8606d95661643967aa2e6332c5762cf49d7dec51
+。
+鄢陵市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一上线），点击查询：https://github.com/mooded-zz/weixiu/commit/83bcff7cf96034781af6eae109b3f9fdcbf0760f
+。
+沭阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新推出），点击查询：https://github.com/portjuni/jiadian/commit/69f19fb7c461f46343f716b2720c9d143fef7bb4
+。
+濮阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日最新公布），点击查询：https://github.com/diminaito/zixun/commit/40399185cdc6aea1b1292ef39a88e7f6f0fbcdd2
+。
+溧阳市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/lorinakju/baojia/commit/170e296cab3357ecd0765a2fa16174f78310068b
+。
+泸州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日统一推出），点击查询：https://github.com/mooded-zz/weixiu/commit/d16749c9a09c329e856562d983ddcfe43a1d99c0
+。
+衢州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日全新公布），点击查询：https://github.com/portjuni/jiadian/commit/ead4d45df6f0840c998c6741c1fa3ec4336eaa5d
+。
+亳州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网升级），点击查询：https://github.com/diminaito/zixun/commit/e67dae67ccb4b62d52f5ef2ef31a99645638c5d7
+。
+邳州市壁挂炉显示f.5元件样式售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月05日官网更新），点击查询：https://github.com/lorinakju/baojia/commit/9b7a94fff139beff47ca761b530d3c423c0c7485
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月05日20时03分59秒*
+*数据来源：新浪财经、公开媒体报道*
